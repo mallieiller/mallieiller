@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @mallieiller
-- 👀 I’m interested in culture reporting and writiing 
+- 👀 I’m interested in writing and reporting
 - 🌱 I’m currently learning HTML
 - 💞️ I’m looking to collaborate on newsletters
 - 📫 How to reach me (mallie.iller@gmail.com)
